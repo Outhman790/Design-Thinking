@@ -71,5 +71,5 @@ User:
 Manager: 
 ![image](https://github.com/user-attachments/assets/74ff4c66-126e-4bf5-b1d5-7d0ff5ac088d)
 INDH Dashboard:
-![459154469-5f2316b4-11eb-4db1-8a12-a78c5274df86](https://github.com/user-attachments/assets/43811280-35ad-4648-80c7-e9797538b895)
+![Unbenannt](https://github.com/user-attachments/assets/5332dd14-7ff5-4091-83d3-046d0c51a406)
 
